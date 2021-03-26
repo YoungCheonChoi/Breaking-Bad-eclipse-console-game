@@ -9,6 +9,9 @@
 
 
 -	아래 링크로 이동하시면 프로젝트 시연 동영상을 보실 수 있습니다.
+
 해피 엔딩: https://www.youtube.com/watch?v=oU4ijdbPye4&ab_channel=YoungCheonChoi
+
+
 배드 엔딩: https://www.youtube.com/watch?v=vWeQkbNy9cc&ab_channel=YoungCheonChoi 
 
